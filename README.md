@@ -2,7 +2,8 @@ My Discord - https://discord.gg/N4dZQ3NSxu
 
 My Twitch - https://www.twitch.tv/smerza
 
-# Smerza Skins (https://static-cdn.jtvnw.net/jtv_user_pictures/8611ce38-6e61-47d4-92ad-63adfcc72330-profile_image-300x300.png)
+# Smerza Skins # [](https://www.twitch.tv/smerza)
+![](https://static-cdn.jtvnw.net/jtv_user_pictures/8611ce38-6e61-47d4-92ad-63adfcc72330-profile_image-300x300.png)
 
 # This skins i mostly use in osu!
 
