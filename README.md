@@ -7,15 +7,11 @@ My Twitch - https://www.twitch.tv/smerza
 
 # This skins i mostly use in osu!
 
-# [- # VyshusKaguya # -](https://drive.google.com/file/d/16bsj8q4InS5u2CSxPA0YlcP67cJIyTtD/view)
-![](https://cdn.discordapp.com/attachments/932012499165929512/989277749116022794/screenshot154.jpg)
+# [《CK》 Bacon boi 1.0 『blue』](https://mega.nz/file/jXpniCZD#mv6NjV1NT-VZvF84efqRgjDs_hRrQYUA-IG-2PpdG20)
+![](https://cdn.discordapp.com/attachments/932012499165929512/989514987552768070/screenshot158.jpg)
 
-# [Milkteaism Lunar v1.1 -ODDITY](https://mega.nz/file/EkMy2BSB#HGESbRji1aICo_vgS-X9V1o2X_H3sX2PYtr5Jp_uVAM)
-![](https://cdn.discordapp.com/attachments/932012499165929512/989278478325121094/screenshot155.jpg)
+# [- theez -](https://theez.s-ul.eu/lq4difAV)
+![](https://cdn.discordapp.com/attachments/932012499165929512/989514988060282903/screenshot159.jpg)
 
-# [-.BTMC.Freedom.Dive](https://www.mediafire.com/file/telzb3fcwl18l9p/%25E2%258C%259EFreedom_Dive__%25E2%2586%2593%25E2%258C%259D.osk/file)
-![](https://cdn.discordapp.com/attachments/932012499165929512/989280802602901505/screenshot156.jpg)
-
-# [boop instafade](https://drive.google.com/file/d/1p74fOKlQldnOpHGlTaMYg66zHAK1jb5I/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/932012499165929512/989287596758822912/screenshot157.jpg)
-
+# [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
+![](https://cdn.discordapp.com/attachments/932012499165929512/989514988685242378/screenshot161.jpg)
