@@ -15,3 +15,6 @@ My Twitch - https://www.twitch.tv/smerza
 
 # [Rafis 2017-08-10](http://www.mediafire.com/file/e6bxucfxawlcvtf/Rafis_2017-08-10.osk/file)
 ![](https://cdn.discordapp.com/attachments/932012499165929512/989514988685242378/screenshot161.jpg)
+
+# [mathi ensalada v1.5 (Blue cursor)](https://www.mediafire.com/file/47nvr9lj0k8vtd6/mathi_ensalada_v1.5_%2528Blue_cursor%2529.osk/file)
+![](https://cdn.discordapp.com/attachments/850108017836032081/1000737806123028560/screenshot021.jpg)
